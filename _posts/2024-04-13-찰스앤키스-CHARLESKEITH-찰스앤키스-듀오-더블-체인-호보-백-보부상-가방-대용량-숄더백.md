@@ -1,0 +1,212 @@
+---
+title: "찰스앤키스 구매팁 및 가격비교 - [20~40대] CHARLES&KEITH 찰스앤키스 듀오 더블 체인 호보 백 보부상 가방 대용량 숄더백"
+author: HAJIN
+categories: shopping
+tags: [Top10, shopping]
+pin: true
+---
+
+
+
+해당 게시물에서는 [**분석도구**](https://itemscout.io/)를 통해 23~24년 성별, 연령별 데이터를 바탕으로 상품을 추천해드리고 있습니다. 그중 만족도 및 후기, 재구매율, 판매순위를 종합하여 추려낸 [**상품**](https://link.coupang.com/a/bxFE3B)들을 추천해드리려고 합니다.
+
+### [1] 찰스앤키스 판매 순위 <img width="81" alt="star2" src="https://user-images.githubusercontent.com/78655692/151471960-29c5febe-c509-4c6d-99f4-a2203eb193c5.png">
+
+![찰스앤키스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7272/0004d54e8bfb09ea833d011a107b6a84aa3908e8f27b085f6c4b8f682d6d.png){: width="300" height="300" .w-50 .left}
+
+
+[CHARLES&KEITH 찰스앤키스 듀오 더블 체인 호보 백 보부상 가방 대용량 숄더백](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7807180559&traceid=V0-153&itemId=21163211574&vendorItemId=89235053160)
+<br>
+- 할인율과 원래가격: 즉시할인가 28%  69,700   원
+- 가격: 44,500원
+- 도착예정시간:  내일(일)   도착 보장  
+- star 평가: 4.5
+- 리뷰수: 6342
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7807180559&traceid=V0-153&itemId=21163211574&vendorItemId=89235053160){: .right}
+<br>
+<br>
+
+---
+
+### [2] 찰스앤키스 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7065/152cd1414706a1995419814d0790d2ab85f76d2d1bed4391f3b06210ff75.jpg){: width="300" height="300" .w-50 .right}
+
+
+[CHARLES KEITH 앤키스찰스 모던 토트숄더 겨드랑이바게트여ck2-20151158](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=6957295784&traceid=V0-153&itemId=16923953073&vendorItemId=84101764067)
+<br>
+- 할인율과 원래가격: 46%  56,000   원
+- 가격: 48,900원
+- 도착예정시간:  내일(일)   도착 보장  
+- star 평가: 5.0
+- 리뷰수: 16460
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=6957295784&traceid=V0-153&itemId=16923953073&vendorItemId=84101764067){: .left}
+<br>
+<br>
+
+---
+
+### [3] 찰스앤키스 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![찰스앤키스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6da2/d5814ac0ab68045180c188c3bbbcc685f1ddf2c91c35832b60f5ab58f77e.jpg){: width="300" height="300" .w-50 .left}
+
+
+[CHARLES KEITH 찰스앤키스 페트라 커브 숄더백 호보백 한소희 가방](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7935357789&traceid=V0-153&itemId=21841872137&vendorItemId=88890190786)
+<br>
+- 할인율과 원래가격: 
+- 가격: 76,900원
+- 도착예정시간:  4/17(수)   도착 예정  
+- star 평가: 5.0
+- 리뷰수: 955
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7935357789&traceid=V0-153&itemId=21841872137&vendorItemId=88890190786){: .right}
+<br>
+<br>
+
+---
+
+### [4] 찰스앤키스 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![찰스앤키스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/afc1/91fd009cf808ae5a5061ec10fc493d03b565905f58119c2cdb50835f7c0f.jpg){: width="300" height="300" .w-50 .right}
+
+
+[찰스앤키스 한소희가방 필로메나 하프문 크로스 바디백 CK2-80151325](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7959285538&traceid=V0-153&itemId=22002419467&vendorItemId=88890208512)
+<br>
+- 할인율과 원래가격: 쿠폰할인가 20%  96,030   원
+- 가격: 96,900원
+- 도착예정시간:  내일(일)   도착 보장  
+- star 평가: 5.0
+- 리뷰수: 2539
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7959285538&traceid=V0-153&itemId=22002419467&vendorItemId=88890208512){: .left}
+<br>
+<br>
+
+---
+
+### [5] 찰스앤키스 판매 순위 <img width="81" alt="star2" src="https://user-images.githubusercontent.com/78655692/151471960-29c5febe-c509-4c6d-99f4-a2203eb193c5.png">
+
+![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d2e8/304daa6c274d94a8faef274c4728b3ccde0962de9d7d15eceff82f709679.jpg){: width="300" height="300" .w-50 .left}
+
+
+[찰스앤키스 트라이스 메탈릭 악센트 벨티드 숄더 백](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7807180818&traceid=V0-153&itemId=21163212740&vendorItemId=89338980651)
+<br>
+- 할인율과 원래가격: 10%  129,000   원
+- 가격: 35,010원
+- 도착예정시간:  4/16(화)   도착 예정  
+- star 평가: 4.5
+- 리뷰수: 541
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7807180818&traceid=V0-153&itemId=21163212740&vendorItemId=89338980651){: .right}
+<br>
+<br>
+
+---
+
+### [6] 찰스앤키스 판매 순위 <img width="81" alt="star2" src="https://user-images.githubusercontent.com/78655692/151471960-29c5febe-c509-4c6d-99f4-a2203eb193c5.png">
+
+![찰스앤키스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/935e/d5cd21f8bf5735c8b5782ad7c04a3f91ff670d01f57fc78fd23d1ba12fb9.png){: width="300" height="300" .w-50 .right}
+
+
+[찰스앤키스 개빈 새들 백 CK2-80781412I](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7995430910&traceid=V0-153&itemId=22237740812&vendorItemId=89283586636)
+<br>
+- 할인율과 원래가격: 쿠폰할인가 42%  239,000   원
+- 가격: 35,500원
+- 도착예정시간:  4/18(목)   도착 예정  
+- star 평가: 4.5
+- 리뷰수: 108
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7995430910&traceid=V0-153&itemId=22237740812&vendorItemId=89283586636){: .left}
+<br>
+<br>
+
+---
+
+### [7] 찰스앤키스 판매 순위 <img width="81" alt="star2" src="https://user-images.githubusercontent.com/78655692/151471960-29c5febe-c509-4c6d-99f4-a2203eb193c5.png">
+
+![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20df/3e8bfbc71d9cead4cc3753e782f292722388202f07c4b4284c34492a56a9.jpeg){: width="300" height="300" .w-50 .left}
+
+
+[찰스앤키스 한소희가방 필로미나 하프문 크로스 바디백 CK2-80151325](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7848157394&traceid=V0-153&itemId=21384018231&vendorItemId=88440801919)
+<br>
+- 할인율과 원래가격: 33%  89,800   원
+- 가격: 129,000원
+- 도착예정시간:  4/17(수)   도착 예정  
+- star 평가: 4.5
+- 리뷰수: 341
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7848157394&traceid=V0-153&itemId=21384018231&vendorItemId=88440801919){: .right}
+<br>
+<br>
+
+---
+
+### [8] 찰스앤키스 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![찰스앤키스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/718b/323a717e48e20933fd8daa189b341ef4ba71cc12d99b842799cd83dd3fad.jpg){: width="300" height="300" .w-50 .right}
+
+
+[찰스 앤 키스 겨드랑이 백 CHARLES&KEITH 23 가을 크로스백 KOA 스퀘어백](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7796309039&traceid=V0-153&itemId=21103466079&vendorItemId=89423818052)
+<br>
+- 할인율과 원래가격: 쿠폰할인가 15%  114,160   원
+- 가격: 42,380원
+- 도착예정시간:  내일(일)   도착 보장  
+- star 평가: 5.0
+- 리뷰수: 4325
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7796309039&traceid=V0-153&itemId=21103466079&vendorItemId=89423818052){: .left}
+<br>
+<br>
+
+---
+
+### [9] 찰스앤키스 판매 순위 <img width="81" alt="star2" src="https://user-images.githubusercontent.com/78655692/151471960-29c5febe-c509-4c6d-99f4-a2203eb193c5.png">
+
+![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bf9a/cf866af7d2b5b1e137683d2d4629deb9598dda1825ea8d2573debe666f62.jpg){: width="300" height="300" .w-50 .left}
+
+
+[CHARLES&KEITH 캔버스크로스 숄더백 CK2-80782074 브라운 블랙](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7787921814&traceid=V0-153&itemId=22378807640&vendorItemId=89423796246)
+<br>
+- 할인율과 원래가격: 
+- 가격: 29,980원
+- 도착예정시간:  내일(일)   도착 보장  
+- star 평가: 4.0
+- 리뷰수: 79
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=7787921814&traceid=V0-153&itemId=22378807640&vendorItemId=89423796246){: .right}
+<br>
+<br>
+
+---
+
+### [10] 찰스앤키스 판매 순위 <img width="81" alt="star3" src="https://user-images.githubusercontent.com/78655692/151471989-9e21d7a8-a7b6-44b0-b598-2bb204b56b00.png">
+
+![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4363/f7b97e341ba10e6625e31d6172125114f407e935ac58e1700172e1e7568e.jpg){: width="300" height="300" .w-50 .right}
+
+
+[찰스앤키스 듀오 더블 체인 호보백 CK2-40671449](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=8005843415&traceid=V0-153&itemId=22315389783&vendorItemId=89360785964)
+<br>
+- 할인율과 원래가격: 33%  58,000   원
+- 가격: 49,000원
+- 도착예정시간:  내일(일)   도착 보장  
+- star 평가: 5.0
+- 리뷰수: 20020
+<br>
+<br>
+[**[CLICK]**](https://link.coupang.com/re/AFFSDP?lptag=AF5797991&subid=soonloveya&pageKey=8005843415&traceid=V0-153&itemId=22315389783&vendorItemId=89360785964){: .left}
+<br>
+<br>
+
+---
+<br><br><br><br><br> [💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받을 수 있습니다](https://link.coupang.com/a/bxFE3B){: .right}
